@@ -18,7 +18,7 @@
 
 - 💬 Ask me about **MERN, Flutter**
 
-- 📫 How to reach me **20011598-076@uog.edu.pk**
+- 📫 How to reach me **contact.hannan100@gmail.com**
 
 - ⚡ Fun fact **I think i am funny**
 
